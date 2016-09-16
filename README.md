@@ -1,1 +1,0 @@
-# T3DM-000012-Fixing-Bracket-THK2
